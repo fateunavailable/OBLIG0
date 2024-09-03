@@ -1,1 +1,3 @@
-# OBLIG0
+Fredrik Aas 
+Microsoft Windows 11 Pro
+fateunavailable
